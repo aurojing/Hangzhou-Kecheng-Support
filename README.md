@@ -4,7 +4,7 @@
 
 
 ## Ideas
-If you have good creative design or mobile development suggestions, please contact support_info@kecheng.com.
+If you have good creative design or mobile development suggestions, please don hesitate to share with via email address below.
 
 
 ## Problems
@@ -12,7 +12,7 @@ If you encounter any problems or difficulties in using our products, please feel
 
 
 ## Questions
-No matter what your doubts, even if you write, we will get back to you as soon as possible!
+No matter what are your questions, write to us, and we will get back to you as soon as possible!
 
 
 Email address: support_info@kecheng.com
